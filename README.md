@@ -1,1 +1,1 @@
-# Paris---Olympics-2024
+# Paris-Olympics-2024
